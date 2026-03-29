@@ -3,7 +3,7 @@
 ### 👨‍💻 Just a 13-year-old passionate coder trying to make cool things happen.
 
 **👋 Name:** Poorvith T A  
-**🎒 Age & Grade:** 13-year-old · 10th grader  
+**🎒 Age & Grade:** 14-year-old · 10th grader  
 **💻 Passion:** Coding (your friendly vibe-full and curious coder)  
 
 **⚡ Hobbies:**  
